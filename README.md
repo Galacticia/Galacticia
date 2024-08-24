@@ -1,1 +1,1 @@
-# Galactia
+# Galacticia
