@@ -1,1 +1,1 @@
-# Galacticia
+# Galacticia-OS
